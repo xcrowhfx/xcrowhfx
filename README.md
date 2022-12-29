@@ -1,0 +1,3 @@
+- Artist Name - KIRA
+- 99(?) years no identification
+- I'm currently learning Programmer & Designer Graphic
